@@ -1,1 +1,3 @@
-# Parcial4-Abel-Antonio-Escobar-Mendez-25-1449-2022
+Abel Antonio Escobar Méndez
+25-1449-2022
+Parcial #4
